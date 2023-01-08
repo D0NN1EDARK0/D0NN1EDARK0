@@ -1,8 +1,8 @@
 hello.
 
-not much to say about me. im intrested in inside job  + more 
+not much to say about me. im intrested in total drama island + others
 
-https://rentry.co/FAKENERDZ
+https://c0demeister.carrd.co/
 <!---
 FAKENERDZ/FAKENERDZ is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 You can click the Preview link to take a look at your changes.
