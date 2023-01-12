@@ -1,6 +1,6 @@
 hello.
 
-not much to say about me. im intrested in total drama island + others
+not much to say about me. apart from how im obessed with total drama island
 
 https://c0demeister.carrd.co/
 <!---
