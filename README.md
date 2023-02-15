@@ -1,10 +1,10 @@
-hello. im magnus and i like total drama island
+hello. im magnus, i suggest going to my rentry if you like to know more about me.
 
-🟢 online : looking for a chat so feel free to int 
+online : bored, or talking with friends. feel free to int 
 
-🟡 away : most likley off tab or drawing - whisp to int 
+away : most likey was online before. probally off tab.
 
-🔴 busy : this is my usual status as i am always afk - whisp to int (again)
+busy : usual status, either im afk or off tab.
 
 https://rentry.co/FAKENERDZ
 <!---
