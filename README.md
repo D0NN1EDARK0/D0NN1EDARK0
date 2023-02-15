@@ -1,6 +1,6 @@
 <p align="center">hello. im magnus, i suggest going to my rentry if you like to know more about me.
 <p align="center">
-  <img width="600" height="300" src="hhttps://i.pinimg.com/564x/a1/4a/1e/a14a1e2af1bfbd0dfdfe578e391e9ad3.jpg">
+  <img width="600" height="300" src="https://i.pinimg.com/736x/c7/11/98/c71198d076fbcdb475440bf845b0374e.jpg">
 </p>
 <p align="center">online : bored, or talking with friends. feel free to int 
 
