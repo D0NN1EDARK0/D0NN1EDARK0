@@ -1,10 +1,10 @@
 hello. im magnus, i suggest going to my rentry if you like to know more about me.
 
-online : bored, or talking with friends. feel free to int 
+♠ online : bored, or talking with friends. feel free to int 
 
-away : most likey was online before. probally off tab.
+♦ away : most likey was online before. probally off tab.
 
-busy : usual status, either im afk or off tab.
+♥ busy : usual status, either im afk or off tab.
 
 https://rentry.co/FAKENERDZ
 <!---
