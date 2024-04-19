@@ -1,6 +1,6 @@
 
 <p align="center">
-  <img width="600" height="300" src="https://i.pinimg.com/564x/b8/a5/35/b8a535decb2c6d7e31285121ebd0137d.jpg">
+  <img width="600" height="300" src="https://i.pinimg.com/474x/55/dc/65/55dc65c2f21f8c19bb99f14b93f308d4.jpg">
 </p>
 <!---
 thedonniedarko/thedonniedarko is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
