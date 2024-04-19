@@ -6,7 +6,7 @@
   friend me on spacehey if your an alpha
   https://spacehey.com/realdonniedarko
     <p align="center">
-      https://donniedarko.123guestbook.com/  <img width="600" height="300" src="https://donniedarko.123guestbook.com/img/cheers.gif">
+      https://donniedarko.123guestbook.com/  <img width="30" height="30" src="https://gifcity.carrd.co/assets/images/gallery97/476d3b1c.gif?v=ec51e415">
 
 </p>
 <!---
