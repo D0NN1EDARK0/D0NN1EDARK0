@@ -1,6 +1,6 @@
 
 <p align="center">
-  <img width="600" height="300" src="https://i.pinimg.com/474x/55/dc/65/55dc65c2f21f8c19bb99f14b93f308d4.jpg">
+  <img width="600" height="300" src="https://i.pinimg.com/564x/65/03/c7/6503c7dd76b8d51e0408a2f5bd1c96f1.jpg">
 
   <p align="center">
   friend me on spacehey if your an alpha
