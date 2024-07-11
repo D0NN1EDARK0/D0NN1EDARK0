@@ -3,7 +3,7 @@
   <img width="600" height="200" src="https://64.media.tumblr.com/182ea07d787a707b80c341dcaa182636/d7324c7875f8691b-f3/s500x750/9733157cd0c33add3ff7947930ffff31cbd3cdb6.gifv">
 
   <p align="center">
-  friend me on spacehey if your an alpha
+  ★ friend me on spacehey if your an alpha
   https://spacehey.com/realdonniedarko
     <p align="center">
       https://donniedarko.123guestbook.com/  <img width="30" height="30" src="https://external-media.spacehey.net/media/sgsNvOAxgPVmZmQpcpIk-EnuP0iT_BdK9fkUYLoucwRw=/https://media.tenor.com/yFPzoLx64WYAAAAM/hey-girl.gif">
